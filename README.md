@@ -1,1 +1,1 @@
-# My Name is olaleye RASHEED, i am a mechanical engineering student. I am curious of how things work, so i pick programming and web development. I am open to advice and mentorship
+# My Name is RASHEED OLALEYE, I am a mechanical engineering student. I am curious about  how things work, and ever since i came across Qbasic programmming in my junior secondary school, i have had passion on how to solve problem with code. I am open to advice and mentorship
